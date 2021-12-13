@@ -1,2 +1,2 @@
 - Hi, I’m Gavin
-- Just began my second year at UC
+- Second year Information Technology student at The University of Cincinnati Clermont
